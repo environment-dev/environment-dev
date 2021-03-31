@@ -1,5 +1,5 @@
 -  Hi, I’m @environment-dev
--  I’m interested in: Network enginnering, Web dev, emulation and grooming children
+-  I’m interested in: Network enginnering, Web dev, emulation, annoying people about arch and grooming children
 -  I’m currently learning: How to stop being a retard
 -  I’m looking to collaborate on: Nothing lol
 -  I'm working on: Trying to not be retarded
