@@ -1,5 +1,5 @@
 -  Hi, I’m @environment-dev
--  I’m interested in: Network enginnering, Web dev and emulation
--  I’m currently learning: C/C++
--  I’m looking to collaborate on: Nothing lol
--  I'm working on: Skystriker
+-  I’m interested in: Network enginnering, Web dev, emulation, and fucking children
+-  I’m currently learning: How to groom children more harder
+-  I’m looking to collaborate on: Children
+-  I'm working on: Fucking children
